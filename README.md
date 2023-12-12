@@ -8,4 +8,4 @@
 
 🎸 I also love to play my two electric left-handed (😎) guitars: Ibanez RG550L, Gibson Les Paul Studio
 
-🎮 In my spare time I also love to play music, play soccer with friends and play videogames.
+🎮 In my spare time I also love to play soccer with friends and play videogames.
